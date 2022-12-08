@@ -1,1 +1,1 @@
-# Code Refactor Starter Code
+![Alt text](https://file%2B.vscode-resource.vscode-cdn.net/c%3A/Users/colea/Desktop/urban-octo-telegram/Develop/assets/images/social-media-marketing.jpg?version%3D1670540707623)
